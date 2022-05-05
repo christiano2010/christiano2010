@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @christiano2010
+- 👀 I’m interested in baseball-track-creativity-drawing
+- 🌱 I’m currently learning 6th grade stuff
+- 💞️ I’m looking to collaborate on drawing
+- 📫 How to reach me, my email
